@@ -1,1 +1,1 @@
-I know python you can contact me on discord realdaveid
+I know python you can contact me on reddit u/idolovecats
